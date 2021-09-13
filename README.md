@@ -1,1 +1,0 @@
-# devinoles.github.io
